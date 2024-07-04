@@ -1,4 +1,7 @@
-
+Lella Linton  
+https://github.com/special -collections-24
+https://github.com/enterprises /octo-enterprises.
+https://github.com/enterprises /lclhilariouslilacmoore
 # Contributor Covenant Code of Conduct
 
 ## Our Pledge
